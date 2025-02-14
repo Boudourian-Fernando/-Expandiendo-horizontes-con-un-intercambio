@@ -1,1 +1,2 @@
 # -Expandiendo-horizontes-con-un-intercambio
+Un programa de intercambio internacional transforma tu vida. Aprendes a adaptarte a entornos nuevos, fortaleces habilidades clave y amplías tus oportunidades laborales. No solo es una experiencia académica, sino un crecimiento personal que te permite ver el mundo desde otra perspectiva. Conectar con personas de diversas culturas te brinda herramientas para desenvolverte en un mercado global.
